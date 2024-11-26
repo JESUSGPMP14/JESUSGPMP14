@@ -30,7 +30,7 @@ A lo largo de mi formación he adquirido conocimientos en una amplia gama de her
 Espero que encuentres interesantes mis proyectos y mi experiencia. Puedes ponerte en contacto conmigo a través de mi correo electrónico o en LinkedIn.
 
 - **Correo electrónico**: [jesuusgp14.2002@gmail.com](mailto:jesuusgp14.2002@gmail.com)
-- **LinkedIn**: [JESUSGPMP14](linkedin.com/in/jesusgpmp14)
+- **LinkedIn**: [JESUSGPMP14](https://www.linkedin.com/in/jesusgpmp14/)
 - **GitHub**: [JESUSGPMP14](https://github.com/JESUSGPMP14)
 
 ✨¡Gracias por visitar mi perfil!✨
